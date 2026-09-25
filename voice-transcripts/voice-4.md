@@ -1,6 +1,5 @@
 <!-- Voice memo 4 of 5 (source duration 0:54:38); source audio quality was poor in many stretches, resulting in frequent (sometimes very high, 100+) [unclear] marker counts per segment. -->
 
-
 ...what he's done in his business, it's nothing short of remarkable. [unclear] a $21 million acquisition of his company [unclear] by [unclear], one of the largest transactions in pharmaceuticals and biotech history. His latest venture, [unclear], is a publicly traded company that currently has a market cap of half a billion dollars. And by the way, this guy — everything he has touched in his career has turned to gold. So this is [unclear] to name. Most importantly, he actively contributes to [unclear] causes, [unclear], continuously supporting [unclear] — his own charitable contributions total [unclear] hundreds of millions of dollars.
 
 [unclear] before that, to learn a little bit more about your story, gentlemen — please give it up for [unclear] — Bob[by] — [unclear]. I'm sitting there [unclear], "who the hell is that?" [unclear] — I just mentioned it backstage.
@@ -79,7 +78,6 @@ Do you not get in and get something, and it's true — you [get] cancer — the 
 
 Immortal and infinite? Okay, from the very beginning — where there is [an] infinite amount of time — you're gonna be here in this body or not. You are [made of] this energy, which — money is a form of energy. What is this, really?
 
-
 ...is that nothing, nothing that has the ability to create in the physical universe as something. That's pretty damn hard. That's you, and don't forget about. They get going, talk, you go, okay. [unclear] where this guy died, said the other day.
 
 What can I do? What's one thing I can do, and that's not gonna come from a section of your brain or your DNA. It's gonna come from you, and begin to build out and validate that, and then look at the word "genius," and there's twenty-four traces that are now variously associated with genius, that are your innate, more inherent ability to make [unclear] to make this survive — original definition, the action definition, super abundance, to make wealth, happiness, and an abundance all talk about.
@@ -153,7 +151,6 @@ You want to, new go. I like that energy of other people want to me, and you do l
 He's defining survive. Why are we here? If it's not for time to be and make things go right ourselves. It's here, more time being in the NBA.
 
 The winners are practice tomorrow way, why do I might this sport tomorrow? It's really all about [unclear], but all about [unclear] is all about being able to lose and get back up and play the game again with the knowledge of what happens, the cost, the loss is you won't be do it again, and you're gonna be better at it because you can have that experience, and you then go to a mentor view, because people have always push power in the direction that you depend on, and never underestimating about the value of validation, to the source of someone gave credit. They've noticed you, they've noticed you.
-
 
 Life is — if nobody notices you, or you do not notice anyone else... We're here to be honest, so do good things and you'll be noticed, you'll feel good about it. That's just — it's a wave.
 
